@@ -1,1 +1,0 @@
-# 2019gantipresiden.social
